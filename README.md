@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lexgend13
-- 👀 I’m interested in ... the purpose and meaning of existence.
+- 👀 I’m interested in ... the purpose and meaning of life and consciousness.
 - 🌱 I’m currently learning ... my morning routine.
 - 💞️ I’m looking to collaborate ... no, not really. Dont want to be a traitor to my own country
 - 📫 How to reach me ... preferably by telegram on NL 6942. You can try smoke signals, but I might forget to respond.
