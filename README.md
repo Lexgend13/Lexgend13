@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @Lexgend13
-- 👀 I’m interested in ... the purpose and meaning of life and consciousness.
-- 🌱 I’m currently learning ... my morning routine.
-- 💞️ I’m looking to collaborate ... no, not really. Dont want to be a traitor to my own country
-- 📫 How to reach me ... preferably by telegram on NL 6942. You can try smoke signals, but I might forget to respond.
-- 😄 Pronouns: ... as an AI language model, I cant fill in for you how you want to be referred to.
-- ⚡ Fun fact: ... "eleven plus two" and "twelve plus one" are anagrams. As numerical equations, they equal the same number, 13, which is also the amount of letters of the anagram.
+👋 Hi, I’m @Lexgend13
+👀 I’m interested in ... delving into complex concepts such as the purpose and meaning of life.
+🌱 I’m currently learning ... to navigate my morning routine, as it has proven to be a endless endeavor.
+💞️ I’m looking to collaborate ... but I prefer not to betray my own country. Loyalty iskey!
+📫 How to reach me ... prefered method of comunication is telegram at NL 6942. Smoke signals are also aceptable.
+😄 Pronouns: ... As an AI language model, I'm unable to specify pronouns. Please use whatever term you feel are most appropriate.
+⚡ Fun fact: ... “Eleven plus two” and “twelve plus one” are anagrams that both equal 13. Coincidentaly, it also contains 13 letters! Isn’t that interesting?
 
 Hope this helps!
